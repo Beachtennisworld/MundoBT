@@ -1,2 +1,1 @@
-# MundoBT
-O mundo das mulheres do Wall Street 
+# MundoBT Womenin Business 
